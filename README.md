@@ -19,7 +19,7 @@
  
 <br>
  
-### Para entrar em contato segue as minhas redes sociais abaixo!
+### Para entrar em contato as minhas redes sociais estão abaixo!
  
 <div> 
 
