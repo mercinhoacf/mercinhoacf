@@ -19,7 +19,7 @@
  
 <br>
  
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+### Para entrar em contato segue as minhas redes sociais abaixo!
  
 <div> 
 
